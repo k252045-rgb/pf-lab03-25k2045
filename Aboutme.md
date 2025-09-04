@@ -1,1 +1,1 @@
-my name is abdullah . and i am studying cyber security
+my name is abdullah . i study cyber security . hobby is to play games
